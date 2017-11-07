@@ -1,0 +1,1 @@
+yeah fuck this china asic shit... working with army and nsa people and hardware guys and having access to the biggest networks in the northern hemisphere (and datacenters) i'd assume I can do this with a couple million dollars and my guys in my NJ building  
